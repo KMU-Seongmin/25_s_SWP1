@@ -4,3 +4,4 @@
 
 KOOKMIN Univ SW
 
+Today is the last class, lol
